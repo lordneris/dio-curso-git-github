@@ -1,1 +1,0 @@
-## Olá, eu sou o lordneris e este é um  teste para adicionar o meu perfil.
